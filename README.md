@@ -1,2 +1,2 @@
-# a-h-tra-mon-gainrrrrrrra$h€$tra¥mon€¥gainr
+#a$h€$tra¥mon€¥gainr
 swag
